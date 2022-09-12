@@ -6,7 +6,7 @@
 //© 2022 Xeon Bot Inc. Cheems Bot MD
 //Gracias al Señor, a la familia y a mí mismo.
 //════════════════════════════//
-//recode kar ke youtube pe upload kar rhe hai ya
+//subiendo a youtube por raked o
 //codes copy kar ke apne script me dal rhe
 //hai to, description me xeon ka yt channel
 // ka link paste kr dena as a cradit or github 
